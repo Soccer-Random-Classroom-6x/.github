@@ -4,6 +4,8 @@
 
 **Soccer Random** is a **hyper casual 2-player football game** where chaos meets comedy. With **blazing kicks**, **bouncy physics**, and **unpredictable arenas**, no two matches are ever the same. Whether you're **competing with friends** or testing your luck in single-player mode, this game delivers **hilarious and action-packed fun** every time!
 
+## <a href="https://1kb.link/fLRUvD">👉 Play Soccer Random Unblocked NOW 👈</a>
+
 ---
 
 ### 🔥 Why You’ll Love It
